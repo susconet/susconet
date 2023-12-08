@@ -6,4 +6,6 @@
 - I'm from Tucson, AZ, and im a music producer and full time artist/business owner.
 - I’m looking to collaborate on application and web development that supports small business growth.
 
-How to reach me: susconet@outlook.com | amazingsound6@gmail.com | or feel free to reach out on here
+How to reach me: midiworxapp@gmail.com | 
+linkedin.com/u/nick-susco
+| or feel free to reach out on here
